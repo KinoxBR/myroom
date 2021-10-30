@@ -1,2 +1,2 @@
 # myroom
-Você só vai aprender se tentar, nada é teoria, tudo é prática. CONFIA!
+Você só vai conseguir se tentar, esquece a teoria e foca na prática. CONFIA!
